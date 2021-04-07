@@ -78,7 +78,9 @@ Open Ottawa. (n.d.). https://open.ottawa.ca/search?q=covid-19
 *****************************************************
 Contact
 *****************************************************
-there is is anything unclear, please feel free to contact
-me.
-
+If there is anything that is unclear, please feel free to contact the team:
+yikunyin@cmail.carleton.ca
+yihaowang@cmail.carleton.ca
+Henggongqu@cmail.carleton.ca
+davidneale@cmail.carleton.ca
 
